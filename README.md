@@ -12,4 +12,7 @@ sarah.gomez@escola.pr.gov.br
 
 🍭gomezsarinha
 
+
+![](https://media.tenor.com/eHjNtoxYb2gAAAAd/turn-on-the-tv-wanda-maximoff.gif)
+
 ![image](https://github.com/gominha29/gominha29/assets/132694643/8882ce51-f1b4-42eb-9509-f85e5493e25b)
